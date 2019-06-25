@@ -11,6 +11,8 @@
 
 ![image](https://github.com/qlrrforever/give-you-paper-or-dowmload/blob/master/691561444913_.pic.jpg)
 
+贴纸有点大，稍等20s~
+
 ![image](https://github.com/qlrrforever/give-you-paper-or-dowmload/blob/master/%E6%89%93%E5%8D%B02.jpg)
 
 ![image](https://github.com/qlrrforever/give-you-paper-or-dowmload/blob/master/%E6%89%93%E5%8D%B01.jpg)
